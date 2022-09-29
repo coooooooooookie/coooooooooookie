@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @coooooooooookie
-- 👀 Looking for a SOLANA DEV for our NFT collection. 
 - 💞️ Looking to collaborate on $SOL projects
 - 📫 @cooooooooooookie on TG, Coooookie#8435 on Discord.
 
